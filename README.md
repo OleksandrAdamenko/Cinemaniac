@@ -1,1 +1,1 @@
-# Sinemaddict
+# Cinemaddict
